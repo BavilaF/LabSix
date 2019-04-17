@@ -1,1 +1,1 @@
-### Mock-up For Smart Shopping List
+### Mock-Up For Smart Shopping List
